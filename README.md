@@ -1,2 +1,2 @@
-# ShadowDiscordBot
-Music bot for discord
+# For r/fcord
+Thanks for making me aware of you :) Go find something better to do :)
